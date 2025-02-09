@@ -1,5 +1,5 @@
 ### I'm George Cao.
 
-- 🎓 An undergraduate currently studying in Zhejiang University.
+- 🎓 Doing my Bachelor's in Engineering Mechanics at Zhejiang University.
 - 🌱 Learning ... everything!
 - ⚡ Hobby: electronic music production, many sports, Minecraft.
